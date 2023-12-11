@@ -5,4 +5,4 @@ Claire Louise L. Floriano
 
 ![alt text](https://pbs.twimg.com/media/E9uw2ivWEAQABpB.jpg)
 
-	I need to highlight these ==Heaven Official's Blessing==.
+**Heaven Official's Blessing** (Chinese: 天官赐福, pinyin: Tiān Guān Cì Fú) is a Chinese novel series written by Mo Xiang Tong Xiu (Chinese: 墨香铜臭).
